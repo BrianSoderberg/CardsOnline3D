@@ -1,2 +1,0 @@
-# CardsOnline3D
- 
